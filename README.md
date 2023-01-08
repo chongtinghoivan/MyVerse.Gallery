@@ -3,6 +3,21 @@ Progress checking for design and product creation
 
 Target: 1000 Products (Equivalent to 334 designs)
 
+26 - Shiba - Cloth Tablemat
+https://bit.ly/shiba10-tablemat
+
+25 - Shiba - T-shirt
+https://bit.ly/shiba10-t-shirt
+
+24 - Shiba - Bath Mat
+https://bit.ly/shiba9-bathmat
+
+23 - Shiba - Postcard
+https://bit.ly/shiba9-postcard
+
+22 - Shiba - Mouse Pad
+https://bit.ly/shiba9-mousepad
+
 21 - Shiba8 - Wall Clock
 https://bit.ly/shiba8-wallclock
 
